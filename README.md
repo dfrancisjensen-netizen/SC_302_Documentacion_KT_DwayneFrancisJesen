@@ -1,1 +1,1 @@
-# SC_302_Documentacion_KT_DwayneFrancisJesen
+# SC_302_Documentacion_KT_Dwayne
